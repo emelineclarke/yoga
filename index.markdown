@@ -22,12 +22,12 @@ Join class via [Zoom](https://dartmouth.zoom.us/j/757625459/)**
 
 April (<em>Theme = Ground, Pose = Child's Pose</em>):
 - [4/14/2020](https://dartmouth.zoom.us/rec/share/_OB4DvLpxyRJYpHJ60GPfJccTqXjeaa8hCRP-fAMykp1omfyuNvhAbBZKI8kKpoh) - Renew and Center
-- [4/21/2020](https://dartmouth.zoom.us/rec/share/-ZUpDenyxkxOHdbz6nj8eKEvQYH3eaa81CFI-6demU_L2jLOMvbVrvH3XA8iUqYi) - Strength and Balance
+- [4/21/2020](https://dartmouth.zoom.us/rec/share/-ZUpDenyxkxOHdbz6nj8eKEvQYH3eaa81CFI-6demU_L2jLOMvbVrvH3XA8iUqYi) - Strength and Balance - [Playlist](https://open.spotify.com/playlist/2HCdSoVTvBr1f1JgNXv6vh?si=c2NJtMM7TJOZ4RH08UnOIQ)
 - [4/28/2020](https://dartmouth.zoom.us/rec/share/7vxECb7J031Of6vzxmzgW6E5G4HJaaa81ylKrvNZmhv5maM_GWmRUWNUNAVdEEw9) - Rest and Reset 
 
 May (<em>Theme = Growth, Pose = Tree Pose</em>):
 - [5/5/2020](https://dartmouth.zoom.us/rec/share/6e0qdJbvyzhOYIXL0wacXKc4WbTKX6a8gXAZrPYJmh0-GPkWMmgqFChBuKPIK0kw) - Energize and Grow
-- [5/12/2020](https://dartmouth.zoom.us/rec/share/u5JMPqCz539Lb9L_sHvzfacFRK_peaa81ylL8vZfmRvJV_-5l7rvTPthJ56TpDRa) - Foundations of Balance
+- [5/12/2020](https://dartmouth.zoom.us/rec/share/u5JMPqCz539Lb9L_sHvzfacFRK_peaa81ylL8vZfmRvJV_-5l7rvTPthJ56TpDRa) - Foundations of Balance - [Playlist](https://open.spotify.com/playlist/5n77zubagrCVy6WPqyAatf?si=zi8eCd9VQ7a6ICWeuyt5-A)
 - 5/19/2020 - Coming Soon!
   
 <br/>
