@@ -20,7 +20,8 @@ Join class via [Zoom](https://dartmouth.zoom.us/j/757625459/)**
 <br/>
 ### Recorded Classes:
 
-<Strong>May</strong>
+<strong>May</strong>
+
 | Class         |Playlist |
 |:------------- |:-------------|
 | #1 - [Energize and Grow](https://dartmouth.zoom.us/rec/share/6e0qdJbvyzhOYIXL0wacXKc4WbTKX6a8gXAZrPYJmh0-GPkWMmgqFChBuKPIK0kw)      | [Spotify](https://open.spotify.com/playlist/3y52hWEOUgObBKbGFV6m40?si=TqeBb2qQRvmtipo2fdyZ5A) | 
