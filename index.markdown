@@ -25,13 +25,22 @@ May (<em>Theme = Growth, Pose = Tree Pose</em>):
 - [5/12/2020](https://dartmouth.zoom.us/rec/share/u5JMPqCz539Lb9L_sHvzfacFRK_peaa81ylL8vZfmRvJV_-5l7rvTPthJ56TpDRa) - [Playlist](https://open.spotify.com/playlist/5n77zubagrCVy6WPqyAatf?si=zi8eCd9VQ7a6ICWeuyt5-A) - Foundations of Balance
 - 5/19/2020 - Playful and Strong - Live via [Zoom](https://dartmouth.zoom.us/j/757625459/)** at 4:30pm EDT. Interested in arm balances? Stay after class for an open exploration into a few extra options!
 
+<strong>April (<em>Theme = Ground, Pose = Child's Pose</em>)</strong>
+
+| Class         |Playlist |
+|:------------- |:-------------|
+| #1 - [Renew and Center](https://dartmouth.zoom.us/rec/share/_OB4DvLpxyRJYpHJ60GPfJccTqXjeaa8hCRP-fAMykp1omfyuNvhAbBZKI8kKpoh)      | [Spotify](https://open.spotify.com/playlist/5MwNc7J0yVB2AMRMhpk637?si=O-gGO9TxS4q3on-M97uqfw) | 
+| #2 - [Strength and Balance](https://dartmouth.zoom.us/rec/share/-ZUpDenyxkxOHdbz6nj8eKEvQYH3eaa81CFI-6demU_L2jLOMvbVrvH3XA8iUqYi)      | [Spotify](https://open.spotify.com/playlist/2HCdSoVTvBr1f1JgNXv6vh?si=c2NJtMM7TJOZ4RH08UnOIQ)      | 
+| #3 - [Rest and Reset](https://dartmouth.zoom.us/rec/share/7vxECb7J031Of6vzxmzgW6E5G4HJaaa81ylKrvNZmhv5maM_GWmRUWNUNAVdEEw9) | [Spotify](https://open.spotify.com/playlist/4z4BsycUOc8GjgjKmytCKe?si=EOMr3jk1RUGYSMNzJ0CyWw)      |
+
+<!---
 April (<em>Theme = Ground, Pose = Child's Pose</em>):
 - [4/14/2020](https://dartmouth.zoom.us/rec/share/_OB4DvLpxyRJYpHJ60GPfJccTqXjeaa8hCRP-fAMykp1omfyuNvhAbBZKI8kKpoh) -  [Playlist](https://open.spotify.com/playlist/5MwNc7J0yVB2AMRMhpk637?si=O-gGO9TxS4q3on-M97uqfw) - Renew and Center
 - [4/21/2020](https://dartmouth.zoom.us/rec/share/-ZUpDenyxkxOHdbz6nj8eKEvQYH3eaa81CFI-6demU_L2jLOMvbVrvH3XA8iUqYi) - [Playlist](https://open.spotify.com/playlist/2HCdSoVTvBr1f1JgNXv6vh?si=c2NJtMM7TJOZ4RH08UnOIQ) - Strength and Balance
 - [4/28/2020](https://dartmouth.zoom.us/rec/share/7vxECb7J031Of6vzxmzgW6E5G4HJaaa81ylKrvNZmhv5maM_GWmRUWNUNAVdEEw9) - [Playlist](https://open.spotify.com/playlist/4z4BsycUOc8GjgjKmytCKe?si=EOMr3jk1RUGYSMNzJ0CyWw) - Rest and Reset
-  
+-->
+
 <br/>
-Each class will be available to stream for the term
 
 ---
 
