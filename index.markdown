@@ -7,18 +7,18 @@ layout: home
 <br/>
 ## Yoga for Stress Relief - Dartmouth Student Wellness Center
 <br/>
-### Live Classes:
+### <strong>Live Classes:</strong>
 
 Tuesdays from 4:30-5:30pm EDT
 
-No experience, mat, or props necessary
+- No experience, mat, or props necessary
 
-Open to Dartmouth students, faculty, and staff
+- Open to Dartmouth students, faculty, and staff
 
-Join class via [Zoom](https://dartmouth.zoom.us/j/757625459/)**
+- Join class via [Zoom](https://dartmouth.zoom.us/j/757625459/)**
 
 <br/>
-### Recorded Classes:
+### <strong>Recorded Classes:</strong>
 
 <strong>May</strong>
 
