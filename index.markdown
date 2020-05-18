@@ -26,7 +26,7 @@ Tuesdays from 4:30-5:30pm EDT
 |:------------- |:-------------|
 | #1 - [Energize and Grow](https://dartmouth.zoom.us/rec/share/6e0qdJbvyzhOYIXL0wacXKc4WbTKX6a8gXAZrPYJmh0-GPkWMmgqFChBuKPIK0kw)      | [Spotify](https://open.spotify.com/playlist/3y52hWEOUgObBKbGFV6m40?si=TqeBb2qQRvmtipo2fdyZ5A) | 
 | #2 - [Foundations of Balance](https://dartmouth.zoom.us/rec/share/u5JMPqCz539Lb9L_sHvzfacFRK_peaa81ylL8vZfmRvJV_-5l7rvTPthJ56TpDRa)      | [Spotify](https://open.spotify.com/playlist/5n77zubagrCVy6WPqyAatf?si=zi8eCd9VQ7a6ICWeuyt5-A)      | 
-| #3 - [Playful and Strong](https://dartmouth.zoom.us/j/757625459/) - Live on 5/19/2020 4:30pm EDT. Interested in arm balances? Stay after class for an open exploration into a few extra options! |       |
+| #3 - [Playful and Strong](https://dartmouth.zoom.us/j/757625459/) - Live on 5/19/2020 4:30pm EDT. Interested in arm balances? Stay after class for an open exploration into a few extra options! | [Spotify](https://open.spotify.com/playlist/2cOqkSL9Z6miFCQ2lLC9EY?si=aResM8pjSv6qZSisTGjp_w)      |
 
 <!---
 - [5/05/2020](https://dartmouth.zoom.us/rec/share/6e0qdJbvyzhOYIXL0wacXKc4WbTKX6a8gXAZrPYJmh0-GPkWMmgqFChBuKPIK0kw) - [Playlist](https://open.spotify.com/playlist/3y52hWEOUgObBKbGFV6m40?si=TqeBb2qQRvmtipo2fdyZ5A) - Energize and Grow
