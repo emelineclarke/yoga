@@ -25,7 +25,7 @@ Tuesdays from 4:30-5:30pm EDT
 | Class         |Playlist |
 |:------------- |:-------------|
 | #1 - [Study Break Reset - Coming Soon!](https://dartmouth.zoom.us/j/757625459/) - Live on 6/02/2020 4:30pm EDT. Take a break from exam prep and reset! |  [Spotify](https://open.spotify.com/playlist/5MwNc7J0yVB2AMRMhpk637?si=O-gGO9TxS4q3on-M97uqfw)   |
-| #2 - [Spring Term Finale - Coming Soon!](https://dartmouth.zoom.us/j/757625459/) - Live on 6/09/2020 4:30pm EDT. Shake off the end of term tension and ease into summer. |     |
+| #2 - [Spring Term Finale - Coming Soon!](https://dartmouth.zoom.us/j/757625459/) - Live on 6/09/2020 4:30pm EDT. Shake off the end of term tension and celebrate summer! |  [Spotify](https://open.spotify.com/playlist/2raXlGz9MhNKIDjV9yzTHc?si=W78LosLfS-GVF_ucbAkieA)    |
 
 <strong>May</strong>
 
