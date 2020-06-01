@@ -7,7 +7,7 @@ layout: home
 <br/>
 ## Yoga for Stress Relief - North Park House and the Dartmouth Student Wellness Center
 <br/>
-### <strong>Live Classes:</strong>
+### <strong>Live:</strong>
 
 Tuesdays from 4:30-5:30pm EDT
 
@@ -18,13 +18,14 @@ Tuesdays from 4:30-5:30pm EDT
 - Join class via [Zoom](https://dartmouth.zoom.us/j/757625459/)**
 
 <br/>
-### <strong>Recorded Classes:</strong>
+### <strong>Classes:</strong>
 
 <strong>June</strong>
 
 | Class         |Playlist |
 |:------------- |:-------------|
 | #1 - [Study Break Reset - Coming Soon!](https://dartmouth.zoom.us/j/757625459/) - Live on 6/02/2020 4:30pm EDT. Take a break from exam prep and reset! |  [Spotify](https://open.spotify.com/playlist/5MwNc7J0yVB2AMRMhpk637?si=O-gGO9TxS4q3on-M97uqfw)   |
+| #2 - [Spring Term Finale - Coming Soon!](https://dartmouth.zoom.us/j/757625459/) - Live on 6/09/2020 4:30pm EDT. Take a break from exam prep and reset! |     |
 
 <strong>May</strong>
 
