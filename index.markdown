@@ -5,7 +5,7 @@ layout: home
 
 ---
 <br/>
-## Yoga for Stress Relief - Dartmouth Student Wellness Center
+## Yoga for Stress Relief - North Park House and the Dartmouth Student Wellness Center
 <br/>
 ### <strong>Live Classes:</strong>
 
