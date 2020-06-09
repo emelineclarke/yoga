@@ -7,15 +7,16 @@ layout: home
 <br/>
 ## Yoga for Stress Relief - North Park House and the Dartmouth Student Wellness Center
 <br/>
-### <strong>Live:</strong>
+<!-- ### <strong>Live:</strong> -->
 
-Tuesdays from 4:30-5:30pm EDT
+<!-- Tuesdays from 4:30-5:30pm EDT -->
+- 60 minute classes
 
 - No experience, mat, or props necessary
 
 - Open to Dartmouth students, faculty, and staff
 
-- Join class via [Zoom](https://dartmouth.zoom.us/j/757625459/)**
+<!-- - Join class via [Zoom](https://dartmouth.zoom.us/j/757625459/)** -->
 
 <br/>
 ### <strong>Classes:</strong>
@@ -25,7 +26,7 @@ Tuesdays from 4:30-5:30pm EDT
 | Class         |Playlist |
 |:------------- |:-------------|
 | #1 - [Study Break Reset](https://dartmouth.zoom.us/rec/share/z-0yIrO3rm5LUpXv9Eb5BLx9Qdjaeaa8hCMa-aEMxE6tiAeuiqapYPlCsnvoDJKi) |  [Spotify](https://open.spotify.com/playlist/4z4BsycUOc8GjgjKmytCKe?si=AcylkFxZRQmdKYoxEzFriQ)   |
-| #2 - [Spring Term Finale - Coming Soon!](https://dartmouth.zoom.us/j/757625459/) - Live on 6/09/2020 4:30pm EDT. Shake off the end of term tension and celebrate summer! |  [Spotify](https://open.spotify.com/playlist/2raXlGz9MhNKIDjV9yzTHc?si=W78LosLfS-GVF_ucbAkieA)    |
+| #2 - [Strength and Stretch](https://dartmouth.zoom.us/rec/share/tJFWDeHA33FIWoHIt0_8BYsfHrngaaa80yQY_PEOyh54kc0u1VW2fLi41fZKvxr_) |  [Spotify](https://open.spotify.com/playlist/2raXlGz9MhNKIDjV9yzTHc?si=W78LosLfS-GVF_ucbAkieA)    |
 
 <strong>May</strong>
 
