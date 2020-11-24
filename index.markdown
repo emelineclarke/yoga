@@ -12,16 +12,16 @@ layout: home
 <!-- Tuesdays from 4:30-5:30pm EDT -->
 - 60-90 minute classes (details per class)
 
-- No experience, mat, or props necessary (suggested items per class)
+- No experience, mat, or props necessary (suggested items per class listed)
 
 - Open to all
 
 <!-- - Join class via [Zoom](https://dartmouth.zoom.us/j/757625459/)** -->
 
 <br/>
-<!-- ### <strong>Classes:</strong> -->
+### <strong>Classes:</strong>
 
-<!-- <strong>Upcoming</strong> -->
+<strong>Upcoming - Yoga for back pain</strong>
 
 <!-- | Class         |Playlist |
 |:------------- |:-------------|
